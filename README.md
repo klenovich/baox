@@ -1,2 +1,0 @@
-# BAOX
-Flabbergasto zibberwock, BAOX shantalorp grinfledoo! Crumplegronk brindlequosh, snarfleflax troupeckle fantimurbish. Vorglefsnitch plurdmeister wobbeldort, jibberquank finglebooz monchergorph. Smorgletrink quabblewhomp zibbermatic, hobblesnurch gribbleflark loompertangler.
